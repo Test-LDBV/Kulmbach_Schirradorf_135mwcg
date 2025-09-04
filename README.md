@@ -1,1 +1,0 @@
-# Kulmbach_Schirradorf_135mwcg
